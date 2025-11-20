@@ -1,1 +1,0 @@
-# mohiy.githud.io
